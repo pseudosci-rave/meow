@@ -1,0 +1,1 @@
+If I'm talking to someone, you can interact, but if I'm sitting silently, I'm most likely AFK and you should whisper! You can cuddle and hug with me if you wrote at least hi, because if I notice that someone just sat down next to me, I... don't feel very comfortable. 
