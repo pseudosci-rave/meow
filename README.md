@@ -1,3 +1,6 @@
+<img width="1172" height="674" alt="GzAHdSBboAIoZAD" src="https://github.com/user-attachments/assets/d43e7689-6de3-47e8-bf68-5da207c34114" />
+
+
 If I'm talking to someone, you can interact, but if I'm sitting silently, I'm most likely AFK and you should whisper! You can cuddle and hug with me if you wrote at least hi, because if I notice that someone just sat down next to me, I... don't feel very comfortable. 
 
 ![105129634_eE6](https://github.com/user-attachments/assets/1f309ee3-f86d-4e82-aba4-b0d04d356827)
