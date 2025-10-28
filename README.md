@@ -7,5 +7,4 @@ If I'm talking to someone, you can interact, but if I'm sitting silently, I'm mo
 <img width="99" height="57" alt="105071805_nPb" src="https://github.com/user-attachments/assets/ac8b1b34-4db1-451e-9751-11788ef0bfd4" />
 ![105129584_mNX](https://github.com/user-attachments/assets/66311886-6ed2-4079-8741-3d2bc93a32a2)
 ![105081139_7wG](https://github.com/user-attachments/assets/b2b35eb8-6420-414f-a528-c068dc01df18)
-![106043951_Hi1](https://github.com/user-attachments/assets/1b7cb5b2-c1bb-4bdd-94cc-3d286703e523)
 <img width="101" height="57" alt="105078406_gvm" src="https://github.com/user-attachments/assets/c8abfc02-160b-4a04-a6cc-b2089645552f" />
